@@ -1,0 +1,1 @@
+# Sparebank1
